@@ -1,0 +1,2 @@
+# 24short-shop-template
+ 
